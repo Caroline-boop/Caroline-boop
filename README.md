@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on healthcare projects, financial institutions with passion and love with data!
 
-📫 Feel free to contact me via Telegram: @coldshrine
+📫 Feel free to contact me via Telegram: @yuppiegirl
